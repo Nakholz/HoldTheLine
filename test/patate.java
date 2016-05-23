@@ -1,0 +1,13 @@
+pdaz,kanxka,x,kx
+    pdz,apdkaz,
+dazkdaz
+daz
+daz
+d
+azdazdaz
+adz
+azd
+azd
+az
+daz
+za
